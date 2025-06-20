@@ -1,1 +1,2 @@
-basis LLC all rights reserved
+статья для ДКИ по селексипагу
+
